@@ -1,10 +1,10 @@
-Secure Surfshark Plugin | torrenting support + streaming optimization is the best Surfshark plugin with torrenting support and streaming optimization. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/surfshark-xl84/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
